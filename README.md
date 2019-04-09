@@ -7,3 +7,4 @@ The natural synchronizing effects of the lunar cycle on female menstrual cycles 
 
 ![alt text](https://github.com/sophiaisabelma/Synchromatic2/blob/master/IMG_5932.jpeg)
 
+![alt text](https://github.com/sophiaisabelma/Synchromatic2/blob/master/IMG_6152.JPG)
